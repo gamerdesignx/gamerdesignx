@@ -1,7 +1,7 @@
 ## I'm Gamer, or gamerdesignx :)
 I'm an hobbyist graphic designer. https://youtube.com/@gamerdesignx <br>
 Here I started my website Chromanext, my biggest upcoming project. Stay tuned.
-![me](gamerdesignx.github.io/chromanext)
+![me](https://gamerdesignx.github.io/chromanext)
 
 <!--
 Here are some ideas to get you started:
