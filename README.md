@@ -1,6 +1,6 @@
 ## I'm Gamer, or gamerdesignx :)
-I'm an hobbyist graphic designer. [yt](https://youtube.com/@gamerdesignx)
-
+I'm an hobbyist graphic designer. https://youtube.com/@gamerdesignx
+Here I started my website Chromanext, my biggest upcoming project. Stay tuned.
 <!--
 Here are some ideas to get you started:
 
