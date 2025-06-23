@@ -1,6 +1,8 @@
 ## I'm Gamer :)
 i'm an aspirant graphic designer. https://youtube.com/@gamer_ye <br>
 here i started my website Chromanext, my biggest upcoming project. Stay tuned.
+
+#gamer #chromanext #chrmnxt
 <!--
 Here are some ideas to get you started:
 
