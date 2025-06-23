@@ -1,5 +1,5 @@
 ## I'm Gamer :)
-i'm an hobbyist graphic designer. https://youtube.com/@gamerdesignx <br>
+i'm an aspirant graphic designer. https://youtube.com/@gamer_ye <br>
 here i started my website Chromanext, my biggest upcoming project. Stay tuned.
 <!--
 Here are some ideas to get you started:
