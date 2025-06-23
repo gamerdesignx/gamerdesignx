@@ -1,4 +1,4 @@
-## I'm Gamer, or gamerdesignx :)
+## I'm Gamer :)
 i'm an hobbyist graphic designer. https://youtube.com/@gamerdesignx <br>
 here i started my website Chromanext, my biggest upcoming project. Stay tuned.
 <!--
