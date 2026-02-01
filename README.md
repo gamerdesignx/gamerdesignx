@@ -1,4 +1,3 @@
-![Design your philosophy](/DesignYourPhilosophy.png)
 
 <!--
 Here are some ideas to get you started:
